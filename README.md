@@ -11,3 +11,6 @@ From the very start Oscar Piastri and Lando Norris were consistently scoring poi
 Behind that the drivers of Ferrari, Mercedes and RedBulls' Max were fighting for third place.
 Outstanding performance of Max Verstappen in a RedBull that was underperforming lead to him getting decent points and even a couple of race wins.
 Every weekend he was maximizing and trying to fall behind as little as possible.
+The RedBull car needed development and this took time, and so at some point Max was 104 points behind Championship leader Piastri.
+Than halfway through the season, and with some update in Monza, the tide started turning, Max in his RedBull was way more competitive and getting pole positions and race wins.
+meanwhile McLaren started to struggle more, making mistakes, drivers fighting on track and losing points. 
