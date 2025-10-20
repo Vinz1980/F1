@@ -8,3 +8,6 @@ Ferrari and Mercedes were also in the mix, scoring good amounts of point on a re
 Halfway through the season it became apparent that McLaren would win the constructor championship. It was just a matter of when.. not if.
 ## Drivers championship
 From the very start Oscar Piastri and Lando Norris were consistently scoring points getting race wins, 1,2 finish and were at the top of the rankings from the start.
+Behind that the drivers of Ferrari, Mercedes and RedBulls' Max were fighting for third place.
+Outstanding performance of Max Verstappen in a RedBull that was underperforming lead to him getting decent points and even a couple of race wins.
+Every weekend he was maximizing and trying to fall behind as little as possible.
