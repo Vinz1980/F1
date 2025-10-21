@@ -18,3 +18,6 @@ After the summer break and since the Monza update on the RedBull, Max seems to b
 Claiming a couple of race wins, and Norris and Piastri losing points.
 A crucial weekend was the race in the USA on COTA. In the sprint race the 2 McLarens touched in 1st corner and ended their race. Max won.
 After that Max took pole position in qualifying and also won the race. Ultimately bringing the gap that was once 104 point down to 40 points.
+## Season Finale
+5 weekends to go of which 2 sprint format weekends.
+The race is on! Max will be fighting to get his 5th Championship whereas Oscar and Lando are both trying to secure their 1st.
