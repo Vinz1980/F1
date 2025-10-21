@@ -16,3 +16,5 @@ Than halfway through the season, and with some update in Monza, the tide started
 meanwhile McLaren started to struggle more, making mistakes, drivers fighting on track and losing points. 
 After the summer break and since the Monza update on the RedBull, Max seems to be flying again.
 Claiming a couple of race wins, and Norris and Piastri losing points.
+A crucial weekend was the race in the USA on COTA. In the sprint race the 2 McLarens touched in 1st corner and ended their race. Max won.
+After that Max took pole position in qualifying and also won the race. Ultimately bringing the gap that was once 104 point down to 40 points.
