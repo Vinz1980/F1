@@ -14,3 +14,5 @@ Every weekend he was maximizing and trying to fall behind as little as possible.
 The RedBull car needed development and this took time, and so at some point Max was 104 points behind Championship leader Piastri.
 Than halfway through the season, and with some update in Monza, the tide started turning, Max in his RedBull was way more competitive and getting pole positions and race wins.
 meanwhile McLaren started to struggle more, making mistakes, drivers fighting on track and losing points. 
+After the summer break and since the Monza update on the RedBull, Max seems to be flying again.
+Claiming a couple of race wins, and Norris and Piastri losing points.
